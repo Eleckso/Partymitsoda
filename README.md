@@ -1,2 +1,3 @@
 # Partymitsoda
-Gaming group
+See our steamgroup!
+http://steamcommunity.com/groups/PartyMitSoda
